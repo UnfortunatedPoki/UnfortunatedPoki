@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @UnfortunatedPoki
+- 👀 I’m interested in Programming, gaming, hanging out with friends, scuba diving.
+- 🌱 I’m currently learning C++.
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me You can reach out to me on Discord by using lane_y.
+- 😄 Pronouns: They/Them
+- ⚡ Fun fact: Proud furry!
